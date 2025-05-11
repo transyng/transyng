@@ -25,7 +25,7 @@ The story of Alex and Preston, as detailed in the video, is a fantastic piece of
 
 **Want to see exactly how Alex pulled off this masterful takedown? Watch the full story here:**
 
-[](https://www.google.com/search?q=https://youtu.be/LugOHt4E-oo)
+[Video Link Here](https://www.google.com/search?q=https://youtu.be/LugOHt4E-oo)
 
 **What lessons did you take away from Alex's story? Share your thoughts in the comments\!**
 
