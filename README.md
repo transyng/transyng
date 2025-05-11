@@ -1,6 +1,8 @@
 ## Beyond Revenge: 3 Key Takeaways from the "Admiralty Gambit" That Silenced a Toxic Boss
 
 We've all encountered them: the workplace antagonist who thrives on undermining others, the boss who takes credit and dishes out blame. The YouTube video, "My Boss Stole My Work & Tried to Ruin Me...]," tells the story of "Alex," who faced such a figure in his boss, "Preston." While the tale of Alex's ingeniously plotted revenge is undeniably satisfying, it also offers some potent insights into navigating toxic work environments and the power of strategic thinking.
+![image](https://github.com/user-attachments/assets/f513c0e0-cc51-4032-a826-eecaf7081c79)
+
 
 Beyond the sheer joy of seeing Preston get his comeuppance, Alex's "Admiralty Gambit" serves as a masterclass in several crucial professional (and life) lessons.
 
